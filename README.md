@@ -1,0 +1,1 @@
+# Projek_Scrapping_Deteksi_Gempa
